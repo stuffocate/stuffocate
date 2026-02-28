@@ -3,8 +3,8 @@
 
 
 <p align="center">
-  <a href="https://tiktok.com/@dogletsky">tiktok</a>ㅤ✦ㅤ
+  <a href="https://tiktok.com/@yoooiiink">tiktok</a>ㅤ✦ㅤ
   <a href="https://manqle.straw.page/">strawpage</a>ㅤ✦ㅤ
-  <a href="https://@manqle.atabook.org/">atabook</a>
+  <a href="https://@yaboink.atabook.org/">atabook</a>
 </p>
 ㅤ
